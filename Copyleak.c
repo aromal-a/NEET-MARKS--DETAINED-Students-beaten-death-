@@ -27,8 +27,14 @@ position is being criminal.  If by state residency Not even a single one of them
 
 
 The outstate of regional occupancies and the already promised => (seats, allocation) is lagging,  The copy-leak is flawed then by system-stem- gen : prodigies
-The examples : elavate : <truth =  paid-formal ='pass' , main-informal = 'rich' : [Only case : allocation happens and rest have to accept their situation]
+The examples : elevate : <truth =  paid-formal ='pass' , main-informal = 'rich' : [Only case : allocation happens and rest have to accept their situation]
 
 
 Conditions Bad :  Rich can survive  ,  Poor have to suffer ! 
+Rendering : notion : <Actual:Fair : 3rd-allocation (restraints, Injured_students)>[Conduction:base = 're-examination']
+
+  conditions : allocate(Emapthetic, Non-crimal:Doctors() , :: <<SET bY set : <re-engineering> :  use on set : <! re-productions>>>)
+  from : <Face , value() , cannot-be : Destantiated : {occupied(Arrears , detains = 'valid',  Chance = 'Retake')}>
+  [retake = 'Stop-form' , Add-attendance(Attend again!)]
+    - > Function  to last :  <<AM>>|<<PM>> | -> unattended-victims => Health_check(admit, fee, medicine , free)[GOVERMENT IS RESPONSIBLE FOR THIER CRUELTY AND ACTIONS]
 Resignation : <Indian Education Minister> : <Prime Minister>
